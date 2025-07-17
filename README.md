@@ -1,3 +1,1 @@
-### dongjunnn
-
-Hi! I am Dong Jun.
+Hi! I am Dong Jun 東駿. <br>
